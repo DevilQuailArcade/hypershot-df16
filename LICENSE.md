@@ -1,4 +1,4 @@
-
+Experience hypershot like never before with hypershot vip Script, the #1 Script. Includes undetectable and no clip for unbeatable performance.
 
 
 
